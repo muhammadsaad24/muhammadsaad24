@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: Linkdin
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: story can change the others thoughts and enage into the talking
--->
+
