@@ -7,5 +7,5 @@
 - 💬 Ask me about C/C++ for embedded system
 - 📫 How to reach me: Linkdin
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: Stories can change the others thoughts and enage into the talking
+- ⚡ Fun fact: Stories can change the others thoughts and enage them into the talking
 
